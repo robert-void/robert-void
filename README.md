@@ -20,4 +20,4 @@ all can interact! ships interact freely, actually ships encouraged! 🖤 especia
 my tumblr is linked if you wish to be my friend ^q^. especially if you're a system or other follower of the void 🙏
 although, I might not really actively look to seek out people who are too mainstream. "normal" (normal people terrify me.)
 
-i do writing and art sometimes, feel free to request things (i will make a strawpage soon.)
+i do writing and art sometimes, feel free to request things 
